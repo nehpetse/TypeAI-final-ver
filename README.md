@@ -1,1 +1,0 @@
-ahahhaha hatdog cheesedog kaya mo ba to igiling giling
